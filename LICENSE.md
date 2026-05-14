@@ -1,4 +1,4 @@
-#  
+#  Experience natural disaster survival like never before with natural disaster survival Script vip, the #1 Script. Includes auto-farm and anti-ban for
 
 
 
